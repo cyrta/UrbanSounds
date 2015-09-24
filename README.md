@@ -25,8 +25,6 @@ Author:
   
 
 
-
-
 ## Previous  
  - www.soundaroundyou.com    
     http://steinhardt.nyu.edu/marl/people/mydlarz   cmydlarz@gmail.com 
